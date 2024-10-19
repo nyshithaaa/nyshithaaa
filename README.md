@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nyshithaaa
+- 👀 I’m interested in aviation, music, biology and tech!
+- 🌱 I’m currently learning Financial Engineering at UoC
+- 💞️ I’m looking to collaborate on financial models using Python or any finance-related data analysis projects.
+- 📫 Text me on ig: @nyshithaaa
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I’m a Gemini, work at SriLankan Airlines, and love exotic animals! Also, I’m a huge Minecraft fan.
